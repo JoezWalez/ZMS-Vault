@@ -1,1 +1,0 @@
-![[Stanford Emerging Tech Trends.pdf]]
